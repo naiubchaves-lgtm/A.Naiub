@@ -14,3 +14,5 @@ Sou apaixonada por tecnologia, atualmente me descobrindo no curso e explorando o
 
 ---
 📫 **Vamos nos conectar?**
+https://www.linkedin.com/in/anne-naiub 
+https://dev.to/naiubchaveslgtm
